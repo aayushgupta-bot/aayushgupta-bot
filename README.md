@@ -37,7 +37,7 @@ When I’m not buried in code, I enjoy gaming (preferably with AI-driven NPCs!),
 📍 **Based in**: Mathura, India  
 ✉️ **Email**: [guptaaayush692@gmail.com](mailto:guptaaayush692@gmail.com)  
 🔗 **LinkedIn**: [Aayush Gupta](https://www.linkedin.com/in/aayushguptabot/)  
-📸 **Instagram**: [@aayushh_hoon](https://www.instagram.com/aayushh_hoon)  
+📸 **Instagram**: [@aayushh_bot](https://www.instagram.com/aayushh_bot)  
 🌐 **Portfolio**: *(coming soon)*  
 
 
